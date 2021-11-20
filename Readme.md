@@ -1,0 +1,1 @@
+# Ffru WordPress theme
